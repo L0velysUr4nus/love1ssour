@@ -1,4 +1,4 @@
-![b207e3ab](https://github.com/user-attachments/assets/7cc10492-4ea0-4228-9d11-fb820fab1505)
+
 draw on my straw  !  . Taken  💞  :3 
 
 
